@@ -2,4 +2,4 @@
 
 源文件  ：*./source/traptrix.md*
 
-文档预览：*./build/preview/traptrix.pdf*
+文档预览：*./build/preview/traptrix.html*
