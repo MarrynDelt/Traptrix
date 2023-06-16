@@ -796,4 +796,4 @@ Beat向虫妹多半是纯轴，也有投入如白银城等单卡的beat挂件，
 
 **[3] [ocg中速型虫惑魔随笔（一） - 哔哩哔哩 (bilibili.com)](https://www.bilibili.com/read/cv24007014)**
 
-**[4]** 
+**[4] [虫惑魔入门指南 - 哔哩哔哩 (bilibili.com)](https://www.bilibili.com/read/cv24344694)**
