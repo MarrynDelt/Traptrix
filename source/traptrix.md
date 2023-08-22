@@ -908,7 +908,7 @@ Beat向虫妹多半是纯轴，也有投入如白银城等单卡的beat挂件，
 
 # 4.2 白银城
 
-​		锐意制作中。（啥时候能做完啊）
+​		详见**https://www.bilibili.com/video/BV1th4y1D7Qo/**。
 
 # 五、参考文献
 
